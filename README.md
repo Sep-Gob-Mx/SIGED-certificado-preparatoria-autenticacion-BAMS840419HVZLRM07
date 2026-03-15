@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-BAMS840419HVZLRM07
+BAMS840419HVZLRM07
